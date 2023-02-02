@@ -1,5 +1,4 @@
-### Hi there 👋
-
+# Jihye 🐰🔥🌈
 <!--
 **jihye0420/jihye0420** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
